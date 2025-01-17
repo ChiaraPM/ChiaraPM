@@ -1,6 +1,6 @@
 - Hi, I’m Chiara Luna Pilato. I was born and raised in Nicaragua and am a senior at the University of California, Berkeley. 
 - I’m interested in researching Environmental Economics, Energy, and the sustainable growth of developing countries.
-- How to reach me: chiarapilato@berkeley & chiaraluna.pilatom@gmail.com
+- How to reach me: chiarapilato@berkeley.edu & chiaraluna.pilatom@gmail.com
 - Pronouns: she/her
 
 
